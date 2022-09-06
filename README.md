@@ -1,4 +1,4 @@
-# [Név]
+# [Fügedi Patrik]
 
 
 ## Hogyan kezdj neki?
